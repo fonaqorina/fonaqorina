@@ -1,9 +1,8 @@
 # Hi, I am Fona :wave: 
 ### Fona Qorina, MD
-I am a medical doctor from Indonesia 🩺🫀
+I am a medical doctor from Indonesia🩺🫀
 Currently, I am reading for the MSc in International Health and Tropical Medicine at the University of Oxford 👩‍🎓
 
-> ![Fona Head and Shoulder](https://github.com/user-attachments/assets/80549ec1-0441-42f6-a31c-ba2f755037c0)
 
 🧠 My interests are: global cardiovascular health, global health and community engagement 
 
